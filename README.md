@@ -1,7 +1,7 @@
 
 ### welcome to mheidens.github.io 
 
-hi! my name is marishka senar ♡
+## hi! my name is marishka senar ♡
 
 [facebook](https://www.facebook.com/ish.senar.90) [instagram](https://www.instagram.com/mhsenar_/)
 
