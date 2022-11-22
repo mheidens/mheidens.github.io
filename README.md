@@ -22,3 +22,7 @@
 # twice ✧
 
 ![twice](https://pbs.twimg.com/media/E-fNSsGXoAE0u95.jpg)
+
+# newjeans ✧
+
+![nwjns](https://i.pinimg.com/550x/77/49/26/774926e9fea35d57fa58d000ca812263.jpg)
