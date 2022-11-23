@@ -26,3 +26,7 @@
 # newjeans ✧
 
 ![nwjns](https://i.pinimg.com/550x/77/49/26/774926e9fea35d57fa58d000ca812263.jpg)
+
+# ive ✧
+
+![ive](https://i.pinimg.com/736x/c0/c8/64/c0c864d9ea9db5cbf50b3cc294a4fbde.jpg)
